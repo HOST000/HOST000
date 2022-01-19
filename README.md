@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @HOST000
+- 👀 I’m interested in lreaning how to hack games to make it easyer
+- 🌱 I’m currently learning hacking
+- 💞️ I’m looking to collaborate on hacking
+- 📫 How to reach me isamuels508@gmail.com
